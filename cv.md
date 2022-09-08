@@ -2,6 +2,7 @@
 I am a hardworking, quick-learning, responsible and friendly person. I like learning and developing my professional skills and abilities. 
 
 ### Contacts
+- <discord nickname: natallia-b#0448>
 - <natallia.bialiatskaya@gmail.com>
 - <https://github.com/natal-lia-b>
 - <https://linkedin.com/natalliabialiatskaya>
